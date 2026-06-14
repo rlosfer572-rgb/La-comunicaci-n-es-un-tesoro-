@@ -1,1 +1,1 @@
-# La-comunicaci-n-es-un-tesoro-
+# La-comunicación-es-un-tesoro-
